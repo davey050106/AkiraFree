@@ -1,4 +1,4 @@
 - 👋 Hi, I’m David
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning HTML & Python
-- 📫 How to reach me, just add me on Discord Akiraa#4043
+- 📫 How to reach me, just add me on Discord just.davey
